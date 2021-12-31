@@ -1,2 +1,0 @@
-# tahunbaru
-tahun baru cuy
