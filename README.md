@@ -1,2 +1,0 @@
-# tahunbaru
-met tahun baru
